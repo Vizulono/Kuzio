@@ -14,10 +14,9 @@ Req - Python / Windows 11/10
 
 Tutorial
 ------------------------------------------------------------------
-
 Paste Ur Key In "Guild" 
 
 Reinstall
 
-Run Gen
+Run The Builder
 
