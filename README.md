@@ -1,4 +1,4 @@
-NOTE : THIS IS BANNABLE MAKE SURE YOUR ANTI VIRUS IS OFF
+🔔・NOTE : THIS IS BANNABLE MAKE SURE YOUR ANTI VIRUS IS OFF
 -----------------------------------------------------------------
 Free Version If You Want Paid Dm Me On Discord taremiryan (alt Acc)
 ------------------------------------------------------------------
